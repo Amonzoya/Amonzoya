@@ -6,6 +6,15 @@ Meu nome é ......
  - Estou me desenvolvendo na linguagem JavaScript
  - Vou ultiliza esse espaça para minha organização e complatilhamento dos projetos desenvolvidos nas aula do Alura
 
+### about me 
+
+- estudade de PEI
+- bleu
+- arte / musica
+- troco card
+- foco 50%
+  
+
 ### musica favorita
 Anavitória  - lisboa https://www.youtube.com/watch?v=o3-lzz60iTQ
 

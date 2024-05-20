@@ -22,7 +22,9 @@ Emicida - passarinhos https://www.youtube.com/watch?v=IJcmLHjjAJ4
 
 mitski - nobody https://www.youtube.com/watch?v=qooWnw5rEcI
 
-ÀVUÀ te encotrar https://www.youtube.com/watch?v=T_ODOe2onz0
+ÀVUÀ - te encotrar https://www.youtube.com/watch?v=T_ODOe2onz0
+
+Slipknot - snuff https://youtu.be/LXEKuttVRIo?feature=shared 
 
 Etc..
 

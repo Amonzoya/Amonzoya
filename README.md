@@ -8,23 +8,25 @@ Meu nome é ......
 
 ### about me 
 
-- estudade de PEI
-- bleu
-- arte / musica
+- estudade de PEI 
+- blue 🔵
+- arte / musica 🎨🎵
 - troco card
 - foco 50%
-  
+
 
 ### musica favorita
 Anavitória  - lisboa https://www.youtube.com/watch?v=o3-lzz60iTQ
 
 Emicida - passarinhos https://www.youtube.com/watch?v=IJcmLHjjAJ4
 
-mitski - nobody https://www.youtube.com/watch?v=qooWnw5rEcI
+Mitski - nobody https://www.youtube.com/watch?v=qooWnw5rEcI
 
 ÀVUÀ - te encotrar https://www.youtube.com/watch?v=T_ODOe2onz0
 
 Slipknot - snuff https://youtu.be/LXEKuttVRIo?feature=shared 
+
+Anavioria - Perdoa https://youtu.be/3EmO_6Lb7rk?feature=shared
 
 Etc..
 
